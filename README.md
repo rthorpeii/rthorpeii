@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Thanks for stopping by my profile! As a reward for your efforts, here's a photo of my cats!
+
+[Two Cats napping together](https://user-images.githubusercontent.com/25067289/145449478-d972c218-162e-4a4c-8d52-a832cecdd950.jpg)
